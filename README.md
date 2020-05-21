@@ -1,0 +1,2 @@
+# nusrat
+i am intelligent
